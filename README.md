@@ -1,5 +1,5 @@
 # kisman.cc-leaked
-Не стоит оно 1к :/
+Паста w+3,gamesense, gishcode, salhack
 
 
 NO team love u 
